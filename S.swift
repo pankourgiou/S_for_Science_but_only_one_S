@@ -1,1 +1,1 @@
-//if there is only one answer in all our questions this would be an absolute dead end...here I never got a dead end in science...never...we kill the dragon and that's all.
+//if there is only one answer in all our questions this would be an absolute dead end...here I never got a dead end in science...never...we kill the dragon and that's all. The dragon is the myth--->I don't want to lie on emotions anymore that's the truth and that's all.
